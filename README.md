@@ -24,7 +24,7 @@
 <h3 align="center">${\textsf{\color{Red}Ponytown}}$</h3>
 
 ♱,, 🌙 If i'm offtab, I usually have what I'm doing in my name. If you want my attention, <i><b>whisper me</b></i><br/>
-♱,, ⛔ I'm either on my socials, or afk.<br/><br/>
+♱,, ⛔ I'm either on my socials, or afk.<br/>
 ♱,, <b>c + h</b> is always okay.
 
 
