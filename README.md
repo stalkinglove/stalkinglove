@@ -3,6 +3,7 @@
   <img src="https://i.pinimg.com/564x/87/b5/ce/87b5ce7402a224ad62cb122e574face4.jpg" alt="jay merrick"><br/>
   <a href="https://tomos09.carrd.co/">╰┈➤ carrd.co</a><br/>
   <a href="http://wallgof.neocities.org">╰┈➤ neocities</a><br><br/>
+  <img src="https://komarev.com/ghpvc/?username=n0-ey3s&amp;color=red" alt="Profile Views" style="max-width: 100%;box-sizing:content-box;background-color:rgb(13, 17, 23);border-style:none;" /><br/>
   <strong>♱</strong>
 </p>
 
