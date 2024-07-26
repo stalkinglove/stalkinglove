@@ -24,13 +24,17 @@
 <b>♱,,</b> don't interact if you don't believe in the paranormal, we won't get along.<br/>
 <b>♱,,</b> anyone in the tcc also go die! If you watch crime documentaries or are interested by true crime, you're fine. But if you romanticize killers, fuck off.<br/><br/>
 
-<p align="center"><strong>♱</strong></p>
-
-<h3>${\textsf{\color{Red}Ponytown}}$</h3>
-
-<b>♱,,</b> 🌙 If i'm offtab, I usually have what I'm doing in my name. If you want my attention, <i><b>whisper me</b></i><br/>
-<b>♱,,</b> ⛔ I'm either on my socials, or afk.<br/>
-<b>♱,,</b> c + h is always okay. I don't believe in that phantom touch nonsense, so booping is encouraged. Also, copy all you want. It's just a game :3<br/>
-<b>♱,,</b> if i randomly shake my head, i'm changing my status from idle to online. I could manually change it, but spamming H is easier.<br/>
+<p align="center"><strong>♱</strong><br/><br/><img src="https://media1.tenor.com/m/D7C7ARHVAzYAAAAd/marble-hornets-hashtag-me-core.gif"></p>
+<summary>
+                  ${\textsf{\color{Red}Fandoms}}$ 
+                </summary>
+                  <div class="content">
+                    <b>♱,,</b> Marble Hornets<br/>
+                    <b>♱,,</b> EverymanHybrid<br/>
+                    <b>♱,,</b> ARG's<br/>
+                    <b>♱,,</b> The Boys<br/>
+                    <b>♱,,</b> Cry of Fear<br/>
+                    <b>♱,,</b> Night in the Woods
+              </div></details>
 
 
