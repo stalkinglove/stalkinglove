@@ -18,10 +18,11 @@
 
 <h3>${\textsf{\color{Red}dni}}$</h3>
 
-<b>♱,,</b> again, proshippers/comshippers go away! I'm a minor, and I don't want to see your weird ass ships.<br/>
+<b>♱,,</b> again, proshippers/comshippers go away! I'm a minor, and I don't want to see your weird ass ships, fuck off.<br/>
 <b>♱,,</b> adults are free to int, but if you're under 14 or over 25, i don't want to be friends.<br/>
 <b>♱,,</b> I'm cool with most people, be cool and we're cool.<br/>
-<b>♱,,</b> don't interact if you don't believe in the paranormal, we won't get along.<br/><br/>
+<b>♱,,</b> don't interact if you don't believe in the paranormal, we won't get along.<br/>
+<b>♱,,</b> anyone in the tcc also go die! If you watch crime documentaries or are interested by true crime, you're fine. But if you romanticize killers, fuck off.<br/><br/>
 
 <p align="center"><strong>♱</strong></p>
 
