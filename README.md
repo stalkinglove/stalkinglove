@@ -10,8 +10,8 @@
 <h3>${\textsf{\color{Red}byi}}$</h3>
 <b>♱,,</b> if you are a proshipper <b><i>do not interact!</i></b> Ever! <a href="https://fictiondoesaffectreality.carrd.co/#faq">Fiction affects reality</a>.<br/>
 <b>♱,,</b> i don't bite, come sit next to me/talk to me :3<br/>
-<b>♱,,</b> i'm 15, your run-of-the-mill slenderverse character, <i>minor</i> character, this story isn't about me.<br/>
-<b>♱,,</b> i'm always on the safe server, usually in the spot you see me in now<br/>
+<b>♱,,</b> i'm 15, your run-of-the-mill slenderverse character, <i>minor</i> character.<br/>
+<b>♱,,</b> i'm always on the safe server, usually in B4<br/>
 <b>♱,,</b> i'm achillean, which is an umbrella term. I like girls, but i like boys more.<br/><br/>
 
 <p align="center"><strong>♱</strong></p>
