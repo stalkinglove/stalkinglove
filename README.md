@@ -29,6 +29,7 @@
 
 <b>♱,,</b> 🌙 If i'm offtab, I usually have what I'm doing in my name. If you want my attention, <i><b>whisper me</b></i><br/>
 <b>♱,,</b> ⛔ I'm either on my socials, or afk.<br/>
-<b>♱,,</b> c + h is always okay. I don't believe in that phantom touch nonsense, so booping is encouraged. Also, copy all you want. It's just a game :3 
+<b>♱,,</b> c + h is always okay. I don't believe in that phantom touch nonsense, so booping is encouraged. Also, copy all you want. It's just a game :3<br/>
+<b>♱,,</b> if i randomly shake my head, i'm changing my status from idle to online. I could manually change it, but spamming H is easier.<br/>
 
 
