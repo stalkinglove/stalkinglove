@@ -12,7 +12,6 @@
 <b>♱,,</b> if you are a proshipper <b><i>do not interact!</i></b> Ever! <a href="https://fictiondoesaffectreality.carrd.co/#faq">Fiction affects reality</a>.<br/>
 <b>♱,,</b> i'm 15, your run-of-the-mill slenderverse character.<br/>
 <b>♱,,</b> i'm always on the ss, usually in B4 [pt]<br/>
-<b>♱,,</b> i'm achillean, which is an umbrella term. I like girls, but i like boys more.<br/>
 <b>♱,,</b> i use xenogenders + neopronouns<br/>
 <b>♱,,</b> i'm <i>welsh</i>, not english.<br/>
 
