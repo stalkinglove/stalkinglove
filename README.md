@@ -6,7 +6,7 @@
   <a href="https://secret.share-on.me/5NlVnzMtL3">╰┈➤ send me a message</a><br>
    most recent message: <b><i>meow</i></b><br/><br/>
   <img src="https://komarev.com/ghpvc/?username=n0-ey3s&amp;color=red" alt="Profile Views" style="max-width: 100%;box-sizing:content-box;background-color:rgb(13, 17, 23);border-style:none;" /><br/><br/>
-  <strong>♱</strong>
+<strong>♱</strong>
 </p>
 
 <h3>${\textsf{\color{Red}byi}}$</h3>
@@ -35,7 +35,10 @@
                   <div class="content">
                     <b>♱,,</b> <a href="https://open.spotify.com/playlist/08Sw2fv1il31quSYxcFB9L?si=4ecde05b0c3d44db"> 🥩</a><br/>
                     <b>♱,,</b> <a href="https://open.spotify.com/playlist/50yyLXC7wERhdFn4DZsICO?si=97c5bbd474074957"> Anti-heterosexual</a> <br/>
-                    <b>♱,,</b> <a href="https://open.spotify.com/playlist/1Wl97nwU8mlQLEIT4T9jI1?si=f48d60a47e4e4260"> S-S-S-Sp-Sp-Spider </a><br/>
-              </div></details>
+                    <b>♱,,</b> <a href="https://open.spotify.com/playlist/1Wl97nwU8mlQLEIT4T9jI1?si=f48d60a47e4e4260"> S-S-S-Sp-Sp-Spider </a><br/><br/>
+                      
+  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31eo6x65yp4a5rpb7dquk5ytvgwq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31eo6x65yp4a5rpb7dquk5ytvgwq&redirect=true)
+  
+</div></details>
 
 
