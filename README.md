@@ -5,7 +5,6 @@
   </a>
 </p>
   <p align="center"><a href="https://tomos.straw.page/rot">╰┈➤ strawpage</a><br/>
-  <p align="center"><a href="https://www.tumblr.com/blog/deadmea-t"/>╰┈➤ tumblr<br/><br/>
    <img src="https://komarev.com/ghpvc/?username=n0-ey3s&amp;color=red" alt="Profile Views" style="max-width: 100%;box-sizing:content-box;background-color:rgb(13, 17, 23);border-style:none;" /></p>
                       
 
