@@ -16,7 +16,7 @@
   
 ## ${\textsf{\color{#8e6bff}✩ ext :3}}$
 </div>
-i made a whole ext thing and idek what to write. errr im okay with most things #idgaf so c+h is fine I SUPPOSE, if you hide me i'll probably move but ERR thats it i think... asking for my other socials is okay too, pls put your discord in my strawpage so i can add it!!!!! 🙏BLESS🙏<br/>🙏BLESS🙏🙏BLESS🙏🙏BLESS🙏🙏BLESS🙏🙏BLESS🙏🙏BLESS🙏🙏BLESS🙏<br/><br/>
+i made a whole ext thing and idek what to write. errr im okay with most things #idgaf so c+h is fine I SUPPOSE, if you hide me i'll probably move but ERR thats it i think... asking for my other socials is okay too, pls put your discord in my strawpage so i can add it!!!!! 🙏BLESS🙏🙏BLESS🙏🙏BLESS🙏🙏BLESS🙏🙏BLESS🙏🙏BLESS🙏🙏BLESS🙏🙏BLESS🙏<br/><br/>
 
 <p align="center"><img src="https://64.media.tumblr.com/4f3be75b3c1065469971b572d7bc747d/471b57e85ecf3ea2-5d/s100x200/51a872eb384f84afb08fa3d59910308f6c48bfe1.pnj" width="99px"> <img src="https://64.media.tumblr.com/7ac00a1ca611d0ae402400b299d00061/152dea0b0c5060b9-ee/s100x200/f685aa13b85cd813b32a0d8eb1d9341271865be1.gifv" width="99px"></p>
 <div align="center">
