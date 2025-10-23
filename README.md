@@ -25,7 +25,7 @@ i made a whole ext thing and idek what to write. errr im okay with most things #
 </div>
 
 💉 i am ${{\color{#d58bfd}\Huge{\textsf{VERY}}}}$ ${{\color{#ffb7c5}\Huge{\textsf{against proshipping, darkshipping, or consuming any ships deemed}}}}$ ${{\color{#d58bfd}\Huge{\textsf{illegal}}}}$ ${{\color{#ffb7c5}\Huge{\textsf{or}}}}$ ${{\color{#d58bfd}\Huge{\textsf{immoral}}}}$
-⠀ ⠀and before anyone says “it’s not real” like… why do you want to ship that kind of stuff? something about it must appeal to you, and that’s exactly why i want you as far away from me as possible.<br/>
+⠀ ⠀and before anyone says “it’s not real” like… why do you want to ship that kind of stuff? something about it must appeal to you, and ⠀ ⠀that’s exactly why i want you as far away from me as possible.<br/>
 🩹 people under 15, i just feel comfier talking with people my age or older<br/>
 💉 radqueers/xenosatanists or people who arent proqueer lol
 
