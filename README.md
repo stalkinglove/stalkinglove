@@ -1,48 +1,52 @@
   <div align="center">
 
-## ${\textsf{\color{#fe89d9}⸜(｡ ˃ ᵕ ˂ )⸝♡   Don't ever forget your internet girl, promise?}}$
+## ${\textsf{\color{#e6a428}✚𓈒 ᴗ)⠀ you cant cure somebody who has nothing wrong with them}}$
 </div>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/e1ad384a33be8c97b27cf1e880dab14a/a69565aec2fb09cc-85/s2048x3072/a804a891c37aaa1775db5dab6c12a12be3e29dd0.pnj" width="500px" alt="by https://www.tumblr.com/dearestluka on tumblr"/>
-<p align="center"> 𓆩　tenchi or tenċi　♥　it/she/any　♥　16yo　𓆪 <br/>
- esfp　.　menhera　.　proqueer <br/>
- c+h ok!　𓏵　always w2i </p> 
+  <a href="https://www.tumblr.com/n2croreb/806861449213476864/shitty-andre-graphic-ok-ok"><img src="https://file.garden/Z78F0nFtX2vHpche/output-onlinepngtools(25).png" width="500px"></a>
+<p align="center"> 𓆩　gerran　　　་། 　　　hy　 hymn　𓆪 <br/>
+ anti-hara　﹕　proship　﹕　proqueer <br/>
+ c+h ok!　⌖　always w2i </p> 
 
 
-<p align=center><img src="https://komarev.com/ghpvc/?username=n0-ey3s&color=ffc2df&style=flat&label=_ _fans!_ _" /></p>
+<p align=center><img src="https://komarev.com/ghpvc/?username=n0-ey3s&color=e6a428&style=flat&label=_ _fans_ _" /></p>
 
 <div align="center">
   
-## ${\textsf{\color{#8e6bff}✩ ext :3}}$
+## ${\textsf{\color{#07b0dd}ᡕᠵデᡁ᠊╾━　ext }}$
 </div>
 <p align="center">guys this looks bad on phone IM SORRY</p>
-i use both of my names interchangebly as they are literally pronounced the same! if you know me irl no you dont. ANYWAY feel free to int or ask to be my friend, i do not bite and i am nice.<br/>
-i mostly hang around the cafe or by spawn. I havent really played since 2023 so i genuinely have no clue which areas are which LMAO <br/><br/>
+i'm offtab most of the time so pleaaase w2i cus i wont see it otherwise. if you know me irl no you dont. ANYWAY feel free to int or ask to be my friend, i do not bite and i am nice.<br/>
+i mostly hang around protree or in random places. I havent really played since 2023 so i genuinely have no clue which areas are which LMAO<br/>
+also feel free to ask for my disc.<br/><br/><br/>
 
-<p align="center"><img src="https://64.media.tumblr.com/4f3be75b3c1065469971b572d7bc747d/471b57e85ecf3ea2-5d/s100x200/51a872eb384f84afb08fa3d59910308f6c48bfe1.pnj" width="99px"> <img src="https://64.media.tumblr.com/7ac00a1ca611d0ae402400b299d00061/152dea0b0c5060b9-ee/s100x200/f685aa13b85cd813b32a0d8eb1d9341271865be1.gifv" width="99px"></p>
-
-<div align="center">
-  
-## ${\textsf{\color{#8e6bff}✩ dni :3}}$
-</div>
-
-💉 i am ${{\color{#d58bfd}\Huge{\textsf{VERY}}}}$ ${{\color{#ffb7c5}\Huge{\textsf{against proshipping, darkshipping, or consuming any ships deemed}}}}$ ${{\color{#d58bfd}\Huge{\textsf{illegal}}}}$ ${{\color{#ffb7c5}\Huge{\textsf{or}}}}$ ${{\color{#d58bfd}\Huge{\textsf{immoral}}}}$
-⠀ ⠀and before anyone says “it’s not real” like… why do you want to ship that kind of stuff? something about it must appeal to you, and<br/>⠀ ⠀that’s exactly why i want you as far away from me as possible.<br/>
-🩹 people under 15, i just feel comfier talking with people my age or older<br/>
-💉 ${{\color{#ffb7c5}\Huge{\textsf{radqueers/xenosatanists}}}}$ or people who arent ${{\color{#d58bfd}\Huge{\textsf{proqueer}}}}$ lol
-
-<p align="center"><img src="https://64.media.tumblr.com/67f2335bbf84fdeba4217ad32f337949/3be04a2f656d0041-93/s250x400/641fb58c509b86de11e54a49bb4344f1571b2aae.gifv"> <img src="https://64.media.tumblr.com/607939b041ea7536a7ab842fe3886708/b31d0a9ab31ddd2c-de/s100x200/05eeb1e08cc19e73dc48127a179931c5c22194ca.pnj"></p>
+<p align="center"><img src="https://file.garden/Z78F0nFtX2vHpche/div1.png" height="70px"></p><br/>
 
 <div align="center">
   
-## ${\textsf{\color{#8e6bff}✩ links :3}}$
+## ${\textsf{\color{#07b0dd}ᡕᠵデᡁ᠊╾━　dni}}$
 </div>
-<p align=center><a href="x">ill do this later lul</a></p>
+
+† i am ${{\color{#07b0dd}\Huge{\textsf{NOT}}}}$ ${{\color{#e6a428}\Huge{\textsf{in the TCC community, nor do I condone or idolise}}}}$ ${{\color{#07b0dd}\Huge{\textsf{real life}}}}$ ${{\color{#07b0dd}\Huge{\textsf{violence.}}}}$ <br/>
+† people ${{\color{#07b0dd}\Huge{\textsf{under 15}}}}$, i just feel comfier talking with people my age or older<br/>
+† ${{\color{#e6a428}\Huge{\textsf{radqueers/xenosatanists}}}}$ or people who arent ${{\color{#07b0dd}\Huge{\textsf{proqueer}}}}$ lol<br/><br/>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31xx7a7akhpoapve4pu7whf4c6me&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false">
+  </a>
+</p>
+<div align="center">
+  
+## ${\textsf{\color{#07b0dd}ᡕᠵデᡁ᠊╾━　links}}$
+</div>
+<p align=center><img src="https://64.media.tumblr.com/da0e2ab07173a5d736dc24493a2f1b3d/4a0a53e861be7f73-d9/s100x200/ef6e8ec33e347db8de99e2a13c5a4523ff4f8745.pnj">⠀<img src="https://64.media.tumblr.com/2dd759d8a817e5c2a14e565c69d40bac/4a0a53e861be7f73-2a/s100x200/19386a3338f699bd6fbbae44e597b4f728127abe.pnj"><br/><a href="https://stalkinglove.straw.page">strawpage</a> ⠀⠀ ⠀ <a href="https://x.com/_B0YFAG">twitter</a></p><br/>
+
 
 <div align="center">
   
-## ${\textsf{\color{#8e6bff}✩ luvs :3}}$
+## ${\textsf{\color{#07b0dd}ᡕᠵデᡁ᠊╾━　loves}}$
 </div>
-<p align=center><a href="x">ill add people later</a></p>
+<p align=center><a href="x">ill add friends here l8r</a></p>
 </div>
