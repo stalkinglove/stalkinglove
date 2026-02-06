@@ -18,8 +18,9 @@
 </div>
 <p align="center">guys this looks bad on phone IM SORRY</p>
 i'm offtab most of the time so pleaaase w2i cus i wont see it otherwise. if you know me irl no you dont. ANYWAY feel free to int or ask to be my friend, i do not bite and i am nice.<br/>
-i mostly hang around protree or in random places. I havent really played since 2023 so i genuinely have no clue which areas are which LMAO<br/>
-i dont actually ship any problematic ships..! I don't see the appeal in adult x minor or incest but i dont care what people ship, and neither should you x<br/><br/><br/>
+i mostly hang around protree or in random places. I havent really played since 2023 so i genuinely have no clue which areas are which<br/>
+i dont actually ship any problematic ships..! I don't see the appeal in adult x minor or incest but i dont care what people ship, and neither should you x<br/>
+I call myself neuship around antis #undercover<br/><br/>
 
 <p align="center"><img src="https://file.garden/Z78F0nFtX2vHpche/div1.png" height="70px"></p><br/>
 
