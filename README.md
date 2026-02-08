@@ -5,7 +5,7 @@
 
 <p align="center">
   <a href="https://www.tumblr.com/n2croreb/806861449213476864/shitty-andre-graphic-ok-ok"><img src="https://file.garden/Z78F0nFtX2vHpche/output-onlinepngtools(25).png" width="500px"></a>
-<p align="center"> 𓆩　gerran　　　་། 　　　hy　 hymn　𓆪 <br/>
+<p align="center"> 𓆩　calvin　　　་། 　　　hy　 hymn　𓆪 <br/>
  anti-hara　﹕　proship　﹕　proqueer <br/>
  c+h ok!　⌖　always w2i </p> 
 
@@ -17,16 +17,16 @@
 ## ${\textsf{\color{#07b0dd}ᡕᠵデᡁ᠊╾━　ext }}$
 </div>
 <p align="center">guys this looks bad on phone IM SORRY</p>
-i'm offtab most of the time so pleaaase w2i cus i wont see it otherwise. if you know me irl no you dont. ANYWAY feel free to int or ask to be my friend, i do not bite and i am nice.<br/>
-i mostly hang around protree or in random places. I havent really played since 2023 so i genuinely have no clue which areas are which<br/>
-i dont actually ship any problematic ships..! I don't see the appeal in adult x minor or incest but i dont care what people ship, and neither should you x<br/>
-I call myself neuship around antis #undercover<br/><br/>
+i'm usually <b>offtab</b> so please w2i because i wont see it otherwise. Also, I don't have supporter so sometimes I'll randomly disconnect. This might also have to do with my shitbox laptop, because it overheats and freezes a lot.<br/><br/>
+I'm always at the protree. i've been sitting around that area since 2022 (im pretty sure it was the lgbtq area at one point..? It seems to be the turkish area now) and i LOVE sitting there and never want to move.<br/><br/>
+I am a proshipper, if you think proship means "problematic ship" or that all proshippers ship minor x adult or inc*st, please click <a href="https://learnaboutproshipping.carrd.co/#basics">here!</a> and educate yourself.. i used to be an anti too lol<br/><br/>
+my favourite ships are The Habit/Patrick Andersen, Evan Myers/Michael Andersen, Alex Kralie/Jay Merrick, EVERY pairing from ddlc, Emily/Nicole, Jecka/Nicole.<br/><br/>
 
 <p align="center"><img src="https://file.garden/Z78F0nFtX2vHpche/div1.png" height="70px"></p><br/>
 
 <div align="center">
   
-## ${\textsf{\color{#07b0dd}ᡕᠵデᡁ᠊╾━　dni}}$
+## ${\textsf{\color{#07b0dd}ᡕᠵデᡁ᠊╾━　dni / byi}}$
 </div>
 
 † i am ${{\color{#07b0dd}\Huge{\textsf{NOT}}}}$ ${{\color{#e6a428}\Huge{\textsf{in the TCC community, nor do I condone or idolise}}}}$ ${{\color{#07b0dd}\Huge{\textsf{real life}}}}$ ${{\color{#07b0dd}\Huge{\textsf{violence.}}}}$ <br/>
@@ -42,7 +42,7 @@ I call myself neuship around antis #undercover<br/><br/>
   
 ## ${\textsf{\color{#07b0dd}ᡕᠵデᡁ᠊╾━　links}}$
 </div>
-<p align=center><img src="https://64.media.tumblr.com/da0e2ab07173a5d736dc24493a2f1b3d/4a0a53e861be7f73-d9/s100x200/ef6e8ec33e347db8de99e2a13c5a4523ff4f8745.pnj">⠀<img src="https://64.media.tumblr.com/2dd759d8a817e5c2a14e565c69d40bac/4a0a53e861be7f73-2a/s100x200/19386a3338f699bd6fbbae44e597b4f728127abe.pnj"><br/><a href="https://stalkinglove.straw.page">strawpage</a> ⠀⠀ ⠀ <a href="https://x.com/_B0YFAG">twitter</a></p><br/>
+<p align=center><img src="https://64.media.tumblr.com/da0e2ab07173a5d736dc24493a2f1b3d/4a0a53e861be7f73-d9/s100x200/ef6e8ec33e347db8de99e2a13c5a4523ff4f8745.pnj">⠀<img src="https://64.media.tumblr.com/2dd759d8a817e5c2a14e565c69d40bac/4a0a53e861be7f73-2a/s100x200/19386a3338f699bd6fbbae44e597b4f728127abe.pnj"><br/><a href="https://calbagel.straw.page">strawpage</a> ⠀⠀ ⠀ <a href="https://x.com/calbagel">twitter</a></p><br/>
 
 
 <div align="center">
