@@ -49,7 +49,7 @@
 
 <img src="https://file.garden/Z78F0nFtX2vHpche/tumblr_84ede21857d577afa2ad00f278195a6f_41a12a24_500.png" align="right" width="30%">
 
-<br/><br/><br/><br/>
+<br/><br/><br/>
 
 <p align="center">
   ${\textsf{\color{#FFB6C1}押し寄せた闇 振り払って進むよ}}$
@@ -89,7 +89,7 @@
 
 <img src="https://file.garden/Z78F0nFtX2vHpche/tumblr_45c19cfacf9b9d1cebc9b11d0aafd356_43862ee1_500.png" align="left" width="30%">
 
-<br/><br/><br/><br/>
+<br/><br/><br/>
 
 <p align="center">
   ${\textsf{\color{#FFB6C1}私ここでまた見ることできるの?}}$
