@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://file.garden/Z78F0nFtX2vHpche/topbannerpink.png" width="100%">
+  <img src="https://file.garden/Z78F0nFtX2vHpche/bottombannerpink.png" width="100%">
 </p>
 
 <br>
@@ -125,5 +125,5 @@ weak hero class, TXT, 2 kawaii 4 comfort, XLOV, D.P, kandi, stranger things, shi
 </p>
 
 <p align="center">
-  <img src="https://file.garden/Z78F0nFtX2vHpche/bottombannerpink.png" width="100%">
+  <img src="https://file.garden/Z78F0nFtX2vHpche/topbannerpink.png" width="100%">
 </p>
