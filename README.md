@@ -18,13 +18,13 @@
 <details>
 <summary> 𓏼 ${\textsf{\color{#FFB6C1}about !!}}$⋆˚࿔ </summary>
 ⠀⠀ ⠀⠀  𓈒 ຼ ͜𓐇˚ִִ𓈒   ⁦call me fawn or callie ! <br/> 
- ⠀ ⠀⠀ ⠀ 　student　 ⠀ ۪۫۫¦ ͜͝ ܄ ͜͝ ¦⠀　 fae 　faer　 ¹⁶<br/>
+ ⠀ ⠀⠀ ⠀ 　student　 ⠀ ۪۫۫¦ ͜͝ ܄ ͜͝ ¦⠀　 he 　him　 ¹⁶<br/>
   ⠀ ⠀⠀ european ⠀♡͜†𓈒ֺּׅ𓏽⠀ online sporadically <br/>
 </details>
 <details>
 <summary> 𓏼 ${\textsf{\color{#FFB6C1}ids !!}}$ㅤ⋆˚࿔ </summary>
-   buckgirl　◞𓈒　 ݂ ♡ masc 𓏲 ˚¦ ͜͝ | ͜͝ .<br/>
-   　　˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  　bambi　⁠ֺ lesbian
+   fawnboy　◞𓈒　 ݂ ♡ t4t 𓏲 ˚¦ ͜͝ | ͜͝ .<br/>
+   　　˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  　bambi　⁠ֺ unlabeled 
 </details>
 <details>
 <summary> 𓏼ㅤ ${\textsf{\color{#FFB6C1}stances !!}}$ㅤ⋆˚࿔ </summary>
